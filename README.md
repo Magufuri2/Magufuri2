@@ -1,1 +1,1 @@
-thank you for contacting me Mariners,what can do for you?
+thank you for contacting me Mariners,what can i do for you?
